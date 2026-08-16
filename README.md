@@ -310,9 +310,6 @@ I am especially interested in:
 **LinkedIn:**  
 https://www.linkedin.com/in/jeremiah-johnson-9665aaa0/
 
-**GitHub:**  
-https://github.com/
-
 ---
 
 ## ⭐ Featured Work
